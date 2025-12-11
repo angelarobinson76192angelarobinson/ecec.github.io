@@ -1,6 +1,6 @@
 中文字幕在线看-中文字幕短片-中文字幕今日更新
 
-# <a href="https://angelarobinson76192angelarobinson.github.io/ecec.github.io/">点击访问：</a>
+# <a href="https://angelarobinson76192angelarobinson.github.io/ecec.github.io/">中文字幕短片</a>
 
 在网络影音生态愈发丰富的今天，越来越多观众开始追求更灵活的 中文字幕在线看 体验。无论是午休时想快速看点内容，还是深夜想追几分钟剧情，只需打开设备，清晰自然的中文字幕就能即时呈现。一键播放、自动匹配字幕，让观影从繁琐转向轻松，仿佛把便捷装进了口袋。
 
